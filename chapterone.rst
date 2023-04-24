@@ -1,20 +1,55 @@
-- urban design - every child can walk or cycle to school on car free paths
+- 
+Fiscal policy
+-------------
+we can afford whatever we can actually achieve 
 
-- MMT
+what we choose to achieve is the political goal - it is not correct to say "we cannot afford that". it's "we choose to spend money on something else".  then the arguments became real.  see how most budget negotiations occur in most large corps - they start nice and "high faulting goals" and turn into "don't give mary 5 million to build that, it's a shit idea give me 3 and barry two for our better ideas"
+
+which leads to
 
 - democracy in organisations
 
+
+Edication
+---------
 - education at students pace - you don't have lesson on changing gear then move on 
+
+Citizenship
+-----------
 
 - citizen ship testing?
 
 
+Sweep of history
+----------------
+urbanisation - it's less deadly when things go wrong. social safety net, even where there is not one by government 
 
-plastics 
+city states to nation states 
+are we seeing mega-nation states? 
+
+urban planning
+--------------
+
+Walkable city
+
+urban design - every child can walk or cycle to school on car free paths
+
+
+different roads for different vehicles (a bike is a vehicle and benefits from seperate roads.  Basically divide based on vulnerability. also note driverless cars will probably need their own walled off roads (destroying most busines models)
+
+this will have to lead to a lot of multi lane roads and or lots of park and ride intersections and or just making most cities non car friendly (but delivery vehicle friendly)
+
+also see barcelona - zones
+
+
+
+plastics
+--------
 https://news.ycombinator.com/item?id=35675731
 
 
-Banking:
+Banking
+-------
 heading for the chicago plan anyhow - https://en.m.wikipedia.org/wiki/Chicago_plan
 
 the emergence of fiat crypto will end fractional reserve and need something else 
