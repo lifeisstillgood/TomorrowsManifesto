@@ -10,6 +10,10 @@ which leads to
 - democracy in organisations
 
 
+index linked salaries hold down inflation? see belgium 
+
+also if money is just a score then the current distribution is political - so mass debt forgiveness becomes easier when one guy rules but is it a bad idea? if debt is only way for many people to keep up - why not? build debt that is valuable ? 
+
 Edication
 ---------
 - education at students pace - you don't have lesson on changing gear then move on 
@@ -18,6 +22,14 @@ Citizenship
 -----------
 
 - citizen ship testing?
+
+Climate change
+--------------
+Managing the end of growth in multiple cities across the world - look at Miami or phoenix.
+
+The great displacement - climate chnage and next american migration
+
+Handling refugees is one thing - handling internal refugees might make that easier ? 
 
 
 Sweep of history
@@ -41,6 +53,12 @@ this will have to lead to a lot of multi lane roads and or lots of park and ride
 
 also see barcelona - zones
 
+also strong towns
+
+
+https://youtu.be/syP8g8HBcy4
+
+Measure value per acre - basically provide mixed use commercial environments 
 
 
 plastics
