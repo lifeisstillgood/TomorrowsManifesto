@@ -14,6 +14,13 @@ index linked salaries hold down inflation? see belgium
 
 also if money is just a score then the current distribution is political - so mass debt forgiveness becomes easier when one guy rules but is it a bad idea? if debt is only way for many people to keep up - why not? build debt that is valuable ? 
 
+Peak Globalisation 
+------------------
+
+It used to be a US startup would source (handbags) from a chinese manufacturer and sell on Amazon - two middle men.  Now there are chinese apps seeing direct from manufacturer (temu) - but noticeably these goods cost same in USA as they do to have delivered in Morocco or Turkey.  The point is that trade and globalisation has reached point where only failing states are "cheaper" 
+
+Not sure what it means - discuss earlier globalisation via Gengis Khan or Ice and 1850s (Frederic Tudor / Lake Wenham) 
+
 Edication
 ---------
 - education at students pace - you don't have lesson on changing gear then move on 
