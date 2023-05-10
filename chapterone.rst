@@ -14,6 +14,15 @@ index linked salaries hold down inflation? see belgium
 
 also if money is just a score then the current distribution is political - so mass debt forgiveness becomes easier when one guy rules but is it a bad idea? if debt is only way for many people to keep up - why not? build debt that is valuable ? 
 
+therapy
+--------
+
+culture war is just politics not worse politics
+
+how we decide how we decide is politics as much as how and what we decide - people who are neurotic diverse are an example of how we decide - the "farmer goes to kill the pig because " - 
+
+
+
 Peak Globalisation 
 ------------------
 
