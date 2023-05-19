@@ -21,7 +21,31 @@ culture war is just politics not worse politics
 
 how we decide how we decide is politics as much as how and what we decide - people who are neurotic diverse are an example of how we decide - the "farmer goes to kill the pig because " - 
 
+deepening democracy is human centred, learning how to handle autistic child - a crowd 
 
+Housing 
+-------
+Planning acts -> tendency to build on large sites outside of town to just make it simpler - which drives the strong town problem 
+
+why cannot local authorities do the work of risk and parcelling up and then aiming to do smaller dense builds inside current infrastructure? 
+
+
+Science - social learning 
+- we see pandemic and the plan for experiments on bus is fast learning software enhanced learning and sensible defaults - plus no one owned it so no one complained
+
+
+sensible defaults - paternislma nd libertarian 
+
+Social is only way forward - openly shared, sensible defaults plus politics to 
+
+shaping operations to be in our favour.
+
+We got there and Japan copied *everything* because was not clear what was the essential- still not and that's what this books tries to discuss - what is essential, what parts do we super charge with software and what parts are optional 
+
+
+Don't wait for it to be obvious before shaping - look at hollywood VFX - software adjacent field - and the need for better sharing revenue model and unionisation 
+
+steven minuchin did basically QE - but did it better than usual QE mechanism - it's political choice to give money to banks who aren't really private 
 
 Peak Globalisation 
 ------------------
@@ -75,6 +99,10 @@ also strong towns
 https://youtu.be/syP8g8HBcy4
 
 Measure value per acre - basically provide mixed use commercial environments 
+
+
+Weaning off cars
+https://news.ycombinator.com/item?id=35988820
 
 
 plastics
