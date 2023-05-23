@@ -104,6 +104,10 @@ Measure value per acre - basically provide mixed use commercial environments
 Weaning off cars
 https://news.ycombinator.com/item?id=35988820
 
+Low use cars
+-------------
+High carbon initial cost of evs os such that for cars that have very low usage (??) then replacing the car will not have a positive return on carbon reduction - so have some licensing scheme for low usage cars till end of life - why spend 100 tons of CO2 for a car that is going to sit in garage most of its life and output 50 tons ? 
+
 
 plastics
 --------
