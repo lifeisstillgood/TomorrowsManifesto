@@ -23,6 +23,20 @@ how we decide how we decide is politics as much as how and what we decide - peop
 
 deepening democracy is human centred, learning how to handle autistic child - a crowd 
 
+Food
+----
+https://www.bbc.co.uk/news/health-65754290
+Ok.  look. Our diets are both amazing and shit
+Bring Disraeli forward 150 years and it will be the well fed, disease free people that first strike him.
+
+But.  like urban design we are 'digging our graves with our teeth'.  And why is capitalism the go to answer here - its a question of degree. we dont allow unfettered captialsm sell cigarettes anymore.  Is not 'personal choice' when your biology is used against you.
+
+Nah. we just need to ban stuff.
+
+But what about povery.  Is he plan ti fix poverty based on giving people more calories? THats not how to fix poverty.
+
+And what about freedom of choice.  Yeah. pah
+
 Housing 
 -------
 Planning acts -> tendency to build on large sites outside of town to just make it simpler - which drives the strong town problem 
