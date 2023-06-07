@@ -52,6 +52,9 @@ Planning acts -> tendency to build on large sites outside of town to just make i
 
 why cannot local authorities do the work of risk and parcelling up and then aiming to do smaller dense builds inside current infrastructure? 
 
+Paris suburb that chnaged itself - https://youtu.be/XfonhlM6I7w
+
+
 
 Science - social learning 
 - we see pandemic and the plan for experiments on bus is fast learning software enhanced learning and sensible defaults - plus no one owned it so no one complained
