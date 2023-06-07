@@ -1,3 +1,12 @@
+
+Energy
+------
+
+more effocne tuse energy as scooety  
+- indistrialm revolution is about wnergy use (40 servents) ans more efficent use - now on societal level we have to ask how to be more efficient - not better engines but netter use - urban design for less cars and less journeys, confortable denser living, domestic housing improvements etc" be more french 
+
+dont assume "oh westerners will never go back - this is really a case of installed base growing - our last chnace as species to build cities that are effcoents (missed the chnace with china)"
+
 - 
 Fiscal policy
 -------------
