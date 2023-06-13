@@ -85,6 +85,18 @@ Simplest urban planning and encironmental solution - car parking tax. the cost o
 
 a reliable wlectric car shared behicle service might actually be best urban planing an encioronemnt solutio - commuting by uner ? 
 
+urban and rural need diff approaches
+
+Tackle a lot through parking - provision of parking is a basic subsidy to xar ownership (though not felt by indoviduals but to cars in general)
+Also it affects urban desifn - the more parking the more xars are needed as distances between places increase, and the less pleasent walking becomes
+
+This also reflects the need to design systems that encourage "social engagement" - walking, public transport as well as cars. remeber tour children need public transport
+
+
+
+biblio: https://www.penguinrandomhouse.com/books/634461/paved-paradise-by-henry-grabar/
+
+
 Peak Globalisation 
 ------------------
 
