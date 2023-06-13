@@ -73,6 +73,10 @@ Don't wait for it to be obvious before shaping - look at hollywood VFX - softwar
 
 steven minuchin did basically QE - but did it better than usual QE mechanism - it's political choice to give money to banks who aren't really private 
 
+Simplest urban planning and encironmental solution - car parking tax. the cost of a car run needs to be equal to its extrrnalities costs - 
+
+
+
 Peak Globalisation 
 ------------------
 
