@@ -83,7 +83,7 @@ Its insane to 1:1 repalce petrol cars with electric
 anyway have less usage not more 
 Simplest urban planning and encironmental solution - car parking tax. the cost of a car run needs to be equal to its extrrnalities costs - 
 
-
+a reliable wlectric car shared behicle service might actually be best urban planing an encioronemnt solutio - commuting by uner ? 
 
 Peak Globalisation 
 ------------------
