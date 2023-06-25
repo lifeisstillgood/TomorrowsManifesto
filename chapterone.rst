@@ -177,3 +177,14 @@ https://www.telegraph.co.uk/finance/comment/9623863/IMFs-epic-plan-to-conjure-aw
 If we all have crypto and we can see each indovidual coin moving then by default if I transfer my coins to a bank and then Insee them go off to some risky investment I am going to want them back - they should be in my account - and if I just get a "trust me" I think Sam bankman fried - and I may as well keep the money in my phone wallet.  
 
 at this point yeah fractional reserve is dead - 100% is what we get and states have full control over the growth of money supply - lenidong willmoccur privately but ... money growth will be state controlled ... might not be what we want but how do we avoid ? 
+
+Food
+----
+Food is a class issue
+not aomething to ban as class availability of cheap calireis
+
+but taxkle at dofferent levels
+
+- packaging - just like cogarettes we package not as coc pops and tony tiger but plain boxes with 
+
+dont as oarent want to foght thenplacemtb of chocolates at the checkout nor foght misinformation on packahing at poit of same 
