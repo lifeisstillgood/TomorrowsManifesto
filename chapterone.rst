@@ -185,6 +185,10 @@ not aomething to ban as class availability of cheap calireis
 
 but taxkle at dofferent levels
 
+- edication
+
+- social and class and wealth redistribution 
+
 - packaging - just like cogarettes we package not as coc pops and tony tiger but plain boxes with 
 
 dont as oarent want to foght thenplacemtb of chocolates at the checkout nor foght misinformation on packahing at poit of same 
