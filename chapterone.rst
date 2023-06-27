@@ -1,3 +1,8 @@
+Civics
+------
+As a compulsort GCSE component each student should pass same questions as for uk citizens test
+
+Redice coting age to 16? 
 
 Energy
 ------
