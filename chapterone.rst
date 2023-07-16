@@ -4,6 +4,15 @@ As a compulsort GCSE component each student should pass same questions as for uk
 
 Redice coting age to 16? 
 
+Cybercrime
+-----------
+There is a wider problem here - that Companies have almost no internal firewalls. Yes it's great that the CEO of company X can email a low level employee but then how do we know that is the CEO?
+Secure messaging, even the maligned GPG (see tptacek) would simply stop this attack (#). And stop most "cyber criminal" which appears to be mostly identify theft which ia another name for impersonation for fraudulent gain.
+We can't conduct all business activity over whatsapp or Signal or whisper.
+But we probably cannot make email (more) secure? Can we create standard business messages that can be sent and revived by anyone and signed ? Will that help ? will that be viable? I am fascinated because that was kinda the dream for past twenty years but it went nowhere - but maybe crime will provide the impetus
+(#) a non technical friend lost thousands of pounds because their small compmay used non 2FA Gmail, was compromised and then "he" sent half a dozen emails to clients asking them to pay genuine invoices for work done to their "new" business account. Some kind of public key verification would stop that. But what kind?
+
+
 Energy
 ------
 
