@@ -4,6 +4,14 @@ As a compulsort GCSE component each student should pass same questions as for uk
 
 Redice coting age to 16? 
 
+families
+--------
+Gabor mate and women needs - take emotionla nees of spiuses without their own 
+
+Some other notes 
+----------------
+https://twitter.com/george__mack/status/1679569846965764096?s=46&t=seC8uw3ZXCXUX_XOmF9-8Q
+
 Cybercrime
 -----------
 There is a wider problem here - that Companies have almost no internal firewalls. Yes it's great that the CEO of company X can email a low level employee but then how do we know that is the CEO?
