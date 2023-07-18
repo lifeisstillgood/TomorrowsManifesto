@@ -4,6 +4,11 @@ As a compulsort GCSE component each student should pass same questions as for uk
 
 Redice coting age to 16? 
 
+
+taxation
+--------
+Tax invesmtnent income at same rate as earned income. Tax interest patments at same rate as other (more research)
+basically make investment and org deicsions even so get best versions - let the market decide ! 
 families
 --------
 Gabor mate and women needs - take emotionla nees of spiuses without their own 
