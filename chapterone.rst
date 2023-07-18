@@ -4,6 +4,16 @@ As a compulsort GCSE component each student should pass same questions as for uk
 
 Redice coting age to 16? 
 
+The end of the conglomerate / large company 
+----------------------
+conglomerate - large collectionnof unrelated compmaies aharing the same treasury (and maybe some backend operations)
+
+large co - collection of related bunsiesses (finance) that share same treasury.  goal is to hide fluctuations in one baujess revenue by covering with the other.  but this means investors miss out on selecting their own
+
+its why tech looks good atm - not much time to conglomerate outwards.
+
+tax or other functions maybsplit these out. too big to fail is a bug not a feature 
+
 
 taxation
 --------
