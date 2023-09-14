@@ -1,3 +1,4 @@
+
 Civics
 ------
 As a compulsort GCSE component each student should pass same questions as for uk citizens test
@@ -229,3 +230,40 @@ but taxkle at dofferent levels
 - packaging - just like cogarettes we package not as coc pops and tony tiger but plain boxes with 
 
 dont as oarent want to foght thenplacemtb of chocolates at the checkout nor foght misinformation on packahing at poit of same 
+
+Brexit And Superstition 
+-----------------------
+brexit and superstition as politics
+
+Once upon a time if your cart broke or your crops were looking weak then you wanted to fix it.
+
+And someone would say "it's that old witch over yonder has cursed your cartwheel"  or that you had not prayed to the right gods or you had 
+
+And even if you did not think that actually some poor starved mentally i'll old woman was actually killing your crops, or that the gods were angry at you because when has you actually seen a god, you certainly thought everyone else believed in the gods and you did not want to piss everyone else off
+
+so you prayed or whatever 
+
+And that's how we put chickens on trial for six weeks
+
+But 
+
+politics today is like that 
+
+It's not some old woman, it's the european parliament making rules that stop you yes you.  It's that we have been spending too much so we need to pray more, i mean be austere more and spend less and cut back and 
+
+We weren't tricked by people saying "350 million"
+on the side of the bus.
+
+we have millions of people who believe in different models of how the world works - or think others believe in them.
+
+And we cannot get them out in the open to examine them.
+
+It's not that people want their own facts. It's that people have different frameworks the facts fit in. And if you think an old woman cursed your crops, listening to lectures on irrigation does not matter. listening to people who talk about witches matters
+
+So that's why we hear so much crap - if your framework does not emphasises the things the "other side" emphasises whatever they talk about is crap and vice versa
+
+Shared frameworks is what matters - and that's why mass media is looked on nostalgically - we shared Edward R Murrows world view. 
+
+Economics matters because it tries to eliminate the worldviews that probably fail. 
+
+
