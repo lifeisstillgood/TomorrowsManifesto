@@ -108,6 +108,12 @@ Low use cars
 -------------
 High carbon initial cost of evs os such that for cars that have very low usage (??) then replacing the car will not have a positive return on carbon reduction - so have some licensing scheme for low usage cars till end of life - why spend 100 tons of CO2 for a car that is going to sit in garage most of its life and output 50 tons ? 
 
+Break traditional loyalities
+- dems we're how athens are ages its citizens
+like gengis khan 
+
+will online dem be more reframing across globe? see the kids film home 
+
 
 plastics
 --------
