@@ -12,3 +12,13 @@ Why have seperate laws?
 
 KYC AML
 Good idea. enforce it
+
+Also 
+
+Industrial Policy
+-----------------
+https://news.ycombinator.com/item?id=37538914
+
+Basically its "what circumstances encourages the industrial revolutions - keep on doing them!"
+
+Or is idea of having one workshop of the world a bad idea? how spread wealth - make the goods in every contry? Can additivare tech overcome ricardos law? 
