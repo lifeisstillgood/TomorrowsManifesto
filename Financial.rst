@@ -1,3 +1,7 @@
+biblio:
+https://www.goodreads.com/book/show/49098225-another-now
+
+
 Equities and share dealing
 
 - Tobin Tax?
