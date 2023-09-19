@@ -1,3 +1,21 @@
+Identify the problems 
+
+Money / MMT is forst problem
+
+Foolish activities based on pretence (British 40bn)
+
+
+
+MMT as a clearwr ezplanationnfor how moneybworks and what to do about it.
+
+Its a database of future productive resource.  And if the money can be created by central bank we have an issue: 
+
+https://news.ycombinator.com/item?id=37564304
+
+With the complete end of the gold standard in the 1970s, the government/fed's been free to create as much USD as it wants. The benefit of newly created money goes to those who spend it first (it's essentially a wealth transfer from those who get it last to those who get it first), and it's the banking/financial system that generally gets first dibs on this newly created money. This means there's a continuous, persistent transfer of wealth from the real economy to the financial system. In theory this wouldn't happen if the fed instead created money by e.g. dropping it out of helicopters equally to everybody (or direct transfers to their bank accounts), but the whole financial industry has a vested interested in keeping the current approach.
+
+
+
 biblio:
 https://www.goodreads.com/book/show/49098225-another-now
 
