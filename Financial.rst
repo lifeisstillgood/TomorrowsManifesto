@@ -1,10 +1,14 @@
 Identify the problems 
 
-Money / MMT is forst problem
+Money / MMT is first issue - of we dont understand money fixing any financial problem is going to be hard
+
+
 
 Foolish activities based on pretence (British 40bn)
 
+then move to more outlandish items - reduce gambling in finance ? reduce the expeirenced player issue? fongers in thr dam
 
+Removal entirely of sharemarket - seems jnlikely 
 
 MMT as a clearwr ezplanationnfor how moneybworks and what to do about it.
 
