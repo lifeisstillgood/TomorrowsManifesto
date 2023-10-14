@@ -2,6 +2,17 @@ We have to change, because if we want different results
 we cannot keep doing the same things
 
 
+urban design
+civics and civic engagement 
+food supply chain
+silicon suplly chain
+ledgers and all suplly chains
+cars and public transport
+armies and honour
+family health
+	mental health 
+democracy companie s
+
 Civics
 ------
 As a compulsort GCSE component each student should pass same questions as for uk citizens test
