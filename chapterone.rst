@@ -1,3 +1,6 @@
+We have to change, because if we want different results 
+we cannot keep doing the same things
+
 
 Civics
 ------
@@ -145,6 +148,11 @@ Not sure what it means - discuss earlier globalisation via Gengis Khan or Ice an
 Edication
 ---------
 - education at students pace - you don't have lesson on changing gear then move on 
+- its hard to overcome 2 grades dofference in same class
+- we can use computers but they wont solve problems of teaching. more teachers well supported - think doibling the teacher pupil
+ratio
+- 
+
 
 Citizenship
 -----------
