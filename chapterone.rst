@@ -75,6 +75,12 @@ index linked salaries hold down inflation? see belgium
 
 also if money is just a score then the current distribution is political - so mass debt forgiveness becomes easier when one guy rules but is it a bad idea? if debt is only way for many people to keep up - why not? build debt that is valuable ? 
 
+Bitcoing faiks to solce the fair / acdeptbale fistribition problem 
+- we have legacy of thiusands years violent kelptomaina as our legacy start point and now the question is whats fair?
+central bank currencies are most likely solution and we still need to ask whats fair - and whats most edfective - see democractic voting in compnaies suddenly i get a share of control over 
+millions of capital? 
+
+
 therapy
 --------
 
