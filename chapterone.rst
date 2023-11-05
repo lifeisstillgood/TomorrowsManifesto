@@ -15,6 +15,17 @@ democracy companie s
 
 Civics
 ------
+
+Theiry if government 
+- way to price extrrnalities so society can survive
+- stand shoukder to shoukder against the zombie hordes but someone needs to arrnage bathroom
+breaks 
+- tax stealing etc
+
+also response to gunnloving 
+- what is right ammo to load in shotgun to deal with a child not having food for two days as mother working three jobs 
+
+
 As a compulsort GCSE component each student should pass same questions as for uk citizens test
 
 Redice coting age to 16? 
