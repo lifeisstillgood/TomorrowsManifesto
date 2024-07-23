@@ -2,6 +2,15 @@ We have to change, because if we want different results
 we cannot keep doing the same things
 
 
+base line - idenoty online 
+
+IAM online 
+
+crotical infrastrucutr manifesto
+
+https://www.redthreatsec.com/blog/greenlightspart1
+
+
 urban design
 civics and civic engagement 
 food supply chain
