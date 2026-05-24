@@ -1,4 +1,4 @@
-
+socratic dialog on five concepts 
 
 MMT describes well
 everyone cankot be wealthy based on passive income
