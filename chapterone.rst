@@ -1,3 +1,13 @@
+
+
+MMT describes well
+everyone cankot be wealthy based on passive income
+
+transport 
+density of urban needs increase - but mobs harder to buidl in the suburbs 
+
+
+
 We have to change, because if we want different results 
 we cannot keep doing the same things
 
