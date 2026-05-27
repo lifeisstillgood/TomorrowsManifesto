@@ -6,7 +6,9 @@ everyone cankot be wealthy based on passive income
 transport 
 density of urban needs increase - but mobs harder to buidl in the suburbs 
 
-
+transparent soxiety 
+https://en.wikipedia.org/wiki/The_Transparent_Society
+the moop
 
 We have to change, because if we want different results 
 we cannot keep doing the same things
